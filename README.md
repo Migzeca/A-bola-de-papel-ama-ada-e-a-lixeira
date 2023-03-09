@@ -1,0 +1,1 @@
+# A-bola-de-papel-ama-ada-e-a-lixeira
